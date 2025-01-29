@@ -24,6 +24,6 @@ ___
 * Ukrainian
 
 **Experience**
-* 2 years of outsourcing development 
+* 4+ years of outsourcing development 
 
 ___
