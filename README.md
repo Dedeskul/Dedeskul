@@ -6,7 +6,7 @@
 
 #### Contact Me: [LinkedIn](https://www.linkedin.com/in/vladymyr-dedeskul-24327016a "LinkedIn")
 
-#### Email: `vladymyr.dedeskul1995@gmail.com` 
+#### Email: `vdedeskul@gmail.com` 
 
 ___
 
